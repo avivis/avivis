@@ -1,8 +1,8 @@
 ### Hey there! I'm Avighna!
 
-🐣 she/her
-🌷 computer science and philosophy @ barnard college, columbia university
-💌 as6469@barnard.edu
+- 🐣 she/her
+- 🌷 computer science and philosophy @ barnard college, columbia university
+- 💌 as6469@barnard.edu
 
 
 <!--
