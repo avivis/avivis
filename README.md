@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hey there! I'm Avighna!
+
+🐣 she/her
+🌷 computer science and philosophy @ barnard college, columbia university
+💌 as6469@barnard.edu
+
 
 <!--
 **avivis/avivis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
