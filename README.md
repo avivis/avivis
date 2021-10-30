@@ -4,7 +4,7 @@
 
 🌷 computer science and philosophy @ barnard college, columbia university
 
-🌱 lead director @ starhacks + researcher @ barnard college pl lab
+🌱 lead director @ starhacks 
 
 💌 as6469@barnard.edu
 
