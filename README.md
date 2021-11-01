@@ -6,7 +6,7 @@
 
 🌱 lead director @ starhacks 
 
-💌 as6469@barnard.edu
+💌 as6469@columbia.edu
 
 
 <!--
