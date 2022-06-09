@@ -1,11 +1,3 @@
-### Hey there! I'm Avighna!
-
-🐣 she/her
-
-🌷 computer science and philosophy @ barnard college, columbia university
-
-🌱 lead director @ starhacks 
-
 💌 as6469@columbia.edu
 
 
